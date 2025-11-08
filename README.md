@@ -1,0 +1,5 @@
+# My Favorite Series
+**Title:** Stranger Things  
+*Genre:* Science Fiction  
+- Great storyline  
+- Amazing characters  
